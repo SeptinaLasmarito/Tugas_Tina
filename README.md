@@ -1,2 +1,2 @@
-# Tugas_Tina
+tinasihombing.github.io
 perpust
